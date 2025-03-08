@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-This is a test repository for my study.
+I`m studying form zero~
