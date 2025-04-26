@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-I`m studying form zero~
+I`m studying from zero~
